@@ -1,5 +1,4 @@
 <img src="https://www.nspcc.org.uk/images/svg/NSPCC_LOGO_RGB_GREEN.svg" alt="NSPCC Logo" width=300>
-# NSPCC
 
 We've been protecting children for over 100 years - doing everything we can to prevent abuse and neglect, and giving expert support to help children recover. 
 When our charity was founded all those years ago, it was for a clear and simple purpose - to stop abuse, keep children safe and give them the best possible 
