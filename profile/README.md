@@ -7,9 +7,10 @@ child abuse stops.
 
 Find out more about our work at [https://www.nspcc.org.uk/](https://www.nspcc.org.uk/).
 
-## Listen Up Speak Up
-We're empowering adults across the UK and Channel Islands with a little bit of knowledge to help keep a lot of children safe. Register for Listen up, Speak up and take the [10-minute digital training](https://www.nspcc.org.uk/support-us/listen-up-speak-up/).
+## Childhood Day
+Half a million children a year suffer abuse in the UK, meaning seven children in a classroom experience abuse before they turn 18 – that’s why we need everyone to play their part in keeping children safe this Childhood Day.
+Find out how to volunteer, fundraise or donate
 
-![Listen Up Speak Up](https://filespace.nspcc.org.uk/emailsignature/20221034_LUSU_Internal%20comms_Email%20signature_KM_AW2.jpg)
+![Childhood Day](https://filespace.nspcc.org.uk/emailsignature/20230002_CHD_2023_Email_Signature_RGB_CM_AW_72dpi.jpg)
 
 <sub>Registered charity England and Wales 216401, Jersey 384 and Scotland SC037717</sub>
